@@ -9,4 +9,3 @@
 - 📫 How to reach me: [vivekptl9@gmail.com](vivekptl9@gmail.com)
 - 😄 Pronouns: him/his
 - ⚡ Fun fact: God indeed play with Dices...!!
--->
