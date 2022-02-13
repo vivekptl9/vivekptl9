@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+## I am an Analyst with a passion for Science communication and popularization.
 
 - 🔭 I’m currently working on Data Analytics  
 - 🌱 I’m currently learning Data Science
